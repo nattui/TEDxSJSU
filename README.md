@@ -1,3 +1,3 @@
 # TEDxSJSU
 
-To be updated
+Will be updated
